@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SlayerLoop2
+- 👀 I’m interested in making games.
+- 🌱 I’m currently learning how to make code.
+- 💞️ I’m looking to collaborate on game designing.
+- 📫 How to reach me kcl471333@gmail.com
+- Discord Slayerloop2#8097
